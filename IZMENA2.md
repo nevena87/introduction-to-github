@@ -1,1 +1,0 @@
-Izmena na grani2.
